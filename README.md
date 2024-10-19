@@ -1,1 +1,0 @@
-# sejilng.github.io
